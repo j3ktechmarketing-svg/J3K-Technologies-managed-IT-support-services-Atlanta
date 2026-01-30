@@ -39,7 +39,7 @@ By focusing on outcomes rather than assumptions, J3K Technologies positions itse
 
 Corporate offices depend on seamless collaboration, secure access, and predictable IT performance. Disruptions, even minor ones, can impact productivity across departments.
 
-J3K Technologies delivers <a href="https://www.j3ktech.com/services/managed-it-services/">Managed IT Services for corporate offices</a> that prioritize uptime, security, and operational efficiency. Our solutions are designed to support executive leadership, finance teams, HR systems, and remote workforce environments under a unified IT strategy.
+J3K Technologies delivers <a href="https://www.j3ktech.com/location/johns-creek/managed-it-services-near-me-in-johns-creek/">Managed IT Services for corporate offices</a> that prioritize uptime, security, and operational efficiency. Our solutions are designed to support executive leadership, finance teams, HR systems, and remote workforce environments under a unified IT strategy.
 
 ### Core Benefits for Corporate Environments
 
@@ -121,7 +121,7 @@ By integrating IT planning with operational technology, manufacturers gain impro
 
 ## Specialized Managed IT Services for Law Firms in Mableton
 
-Law firms handle sensitive data, strict compliance requirements, and demanding client expectations. J3K Technologies delivers <a href="https://www.j3ktech.com/location/johns-creek/managed-it-services-near-me-in-johns-creek/">managed IT services for law firms Mableton</a> practices rely on for confidentiality, reliability, and compliance.
+Law firms handle sensitive data, strict compliance requirements, and demanding client expectations. J3K Technologies delivers <a href="https://www.j3ktech.com/services/managed-it-services">managed IT services for law firms Mableton</a> practices rely on for confidentiality, reliability, and compliance.
 
 Our solutions support secure document management, case management systems, and protected communications.
 
